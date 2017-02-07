@@ -1,14 +1,14 @@
 # 老司机视频最新地址
 
-http://pusiji.pw 
+http://lsjde.pw
 
 http://gesiji.pw
 
-http://xusiji.com 
+http://pusiji.pw
 
-http://dusiji.com [备用]
+http://ousiji3.pw[备用]
 
-收藏下面地址发布页或发任意邮件到lsjdizhi@gmail.com,自动回复老司机视频最新地址
+收藏下面地址发布页或发任意邮件到 lsjdizhi@gmail.com,自动回复老司机视频最新地址
 
 老司机视频地址发布页:
 
