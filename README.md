@@ -6,7 +6,7 @@
 
 最新地址三：https://lsjde.pw
 
-备用地址：http://sjzy.pw
+备用地址：http://tiexueb.pw
 
 收藏下面地址发布页或发任意邮件到 lsjdizhi@gmail.com,自动回复老司机视频最新地址
 
