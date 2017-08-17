@@ -1,10 +1,10 @@
 # 老司机视频最新地址
 
-最新地址一：https://158tong.com
+最新地址一：https://tzsj.com
 
-最新地址二：https://784e.pw
+最新地址二：https://158tong.com
 
-最新地址三：https://lsjde.pw
+最新地址三：https://784e.pw
 
 备用地址：http://tiexueb.pw
 
