@@ -2,7 +2,7 @@
 
 最新地址一：https://158tong.com
 
-最新地址二：https://qvqv.pw
+最新地址二：http://qvqv.pw
 
 最新地址三：https://784e.pw
 
