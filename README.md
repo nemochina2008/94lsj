@@ -6,7 +6,7 @@
 
 最新地址三：https://784e.pw
 
-备用地址：http://chief.tk
+备用地址：https://enjoy.ml
 
 备用地址：http://tiexueb.pw
 
